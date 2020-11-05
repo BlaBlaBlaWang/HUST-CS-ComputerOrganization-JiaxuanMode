@@ -6,4 +6,4 @@ Aloha, My friend! As you can see, this repo is still under construction, because
 
 **update 10.31:**
 
-Now this repo is completed and one may refer my plain work: )
+Now this repo is completed and one may refer to my plain work: )
